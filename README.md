@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @himanth050
 - 🌱 I’m currently learning
 - 💞️ I don't want to collaborate 
-- 📫 To contact me , mail to contacttounknown24@gmail.com
+- 📫 To contact me , mail to -  himanth525240@gmail.com
 - ⚡ Fun fact: serious
 
 <!---
