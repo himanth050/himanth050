@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @himanth050
+- 👋 Hi, I’m @himanth
 - 🌱 I’m currently learning
 - 💞️ I don't want to collaborate 
 - 📫 To contact me , mail to -  himanth525240@gmail.com
